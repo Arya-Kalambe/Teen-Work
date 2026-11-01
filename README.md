@@ -19,5 +19,6 @@ Teen Work is a platform designed to help teenagers discover earning opportunitie
 To empower teenagers to become financially independent, develop professional skills, gain real-world experience, and turn their talents into meaningful opportunities.
 
 🌟 Teen Work is more than a gig platform—it's a stepping stone towards independence, entrepreneurship, and a brighter future for young talent.
+Teenagers now can work and be independent.
 
 #TeenWork #GigMarketplace #YouthEmpowerment #Freelancing #EdTech #Entrepreneurship
